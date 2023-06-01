@@ -4,18 +4,18 @@
 
 旅游社交模块
 
-![](http://rvjy4zno7.hd-bkt.clouddn.com/Snipaste_2023-05-12_17-06-10.png)
+![输入图片说明](Snipaste_2023-05-12_17-06-10.png)
 
 个人中心和我的订单模块
 
-![](http://rvjy4zno7.hd-bkt.clouddn.com/retouch_2023051417110592.jpg)
+![输入图片说明](retouch_2023051417110592.jpg)
 
 首页和关键字检索模块
 
-![](http://rvjy4zno7.hd-bkt.clouddn.com/retouch_2023051217112174.jpg)
+![输入图片说明](retouch_2023051217112174.jpg)
 
 后台模块：
 
-![](http://rvjy4zno7.hd-bkt.clouddn.com/Snipaste_2023-06-01_10-50-36.png)
+![输入图片说明](Snipaste_2023-06-01_10-50-36.png)
 
 有需要的联系我：951099394@qq.com
